@@ -38,7 +38,7 @@ https://winjoymoneyshop.isweb.co.kr/
 
 또는 아래 앵커 텍스트를 이용할 수 있습니다.
 
-[윈조이머니상 시세 및 이용안내](https://winjoymoneyshop.isweb.co.kr/)
+[윈조이머니상 시세 및 이용안내](https://winjoymoneystore.isweb.co.kr/)
 
 ## 안전하게 확인하기
 
